@@ -1,23 +1,31 @@
-<div align="center">
- 
-
-
-<p align="center"><a href="https://git.io/typing-svg"><img src="https://readme-typing-svg.herokuapp.com?font=Fira+Code&pause=1000&color=D0B5D9&width=435&lines=%22I+dont+call+myself+one.+I+am+one.%22" alt="Typing SVG" /></a>
- <br>
-  <br>
-  
-<img align="center" src="https://i.postimg.cc/tRmfWLGB/Untitled1573-20261118210106.png">
+<img align="center" src="https://i.postimg.cc/wM9jqXtz/image-2026-11-19-032614124.png">
     <br>
         <br>
             <br>
-   
-<img align="right" src="https://i.postimg.cc/qMD3kxnB/Untitled1573-20261118210153.png" width=423>
+            <div align=center">
+ 
+
+
+<p align="center"><a href="<a href="<a href="https://git.io/typing-svg"><img src="https://readme-typing-svg.herokuapp.com?font=Fira+Code&pause=1000&color=D79B9B&width=435&lines=I+do+not+desire+power%E2%80%94I+deserve+it." alt="Typing SVG" /></a></a> </a>
+ <br>
+  <br>
+  
+<img align="center" src="https://i.postimg.cc/SK020zGV/image-2026-11-19-033414915.png">
+    <br>
+        <br>
+            <br>
+   <img align="center" src="https://i.postimg.cc/y8hgH8pP/image-2026-11-19-034219527.png">
+    <br>
+        <br>
+            <br>
+
+<img align="left" src="https://i.postimg.cc/Sx4RDpQc/image-2026-11-19-033619974.png" width=423>
 
 
 
 
 
-<p align="center">
+<p align="right">
     <br>
     <br>
     <table style="width:100%">
@@ -25,14 +33,14 @@
      <td>
      <br>
       <br>
-      <div align="center">‎     $\text{\color{#FFFFE2}  (ु 𓈒⋅  ⋅𓈒)}$
-       $\text{\color{#FFFFE2} smiles}$ $\text{\color{#FFFFE2} ⠀݂⠀⠀ㅤ۫}$ $\text{\color{FFFFE2} 18}$
+      <div align="center">‎     $\text{\color{#D79B9B}  smiles}$
+       $\text{\color{#D79B9B} (˶˃ ᵕ ˂˶) .ᐟ.ᐟ}$ $\text{\color{#D79B9B} ⠀݂⠀⠀ㅤ۫}$ $\text{\color{#D79B9B} 8teen}$
 <br>
-$\text{\color{#FFDBE2} he}$ $\text{\color{#FFDBE2}⠀⠀𝄞。　 }$ $\text{\color{#FFDBE2} him}$ $\text{\color{#FFDBE2} !!}$ 
+$\text{\color{#AE4E4F} ⠀𓎟𓎟}$ $\text{\color{#AE4E4F}⠀⠀he　 }$ $\text{\color{#AE4E4F} him}$ $\text{\color{#AE4E4F} !!}$ 
                     <br>
-   $\text{\color{#FFBBD9} ​ferret irl}$ $\text{\color{#FFBBD9} ⠀⠀ ᩙ᜔ ˙}$ $\text{\color{#FFBBD9} (♡ˊ͈ ꒳ ˋ͈)}$
+   $\text{\color{#932F30} ​ferret irl}$ $\text{\color{#932F30} ⠀⠀ !}$ $\text{\color{#932F30} ◞⠀𖹭⠀}$
             <br>
-         $\text{\color{#729AD9} cud}$ $\text{\color{#729AD9} enc !}$
+         $\text{\color{#801F1F} ac :}$ $\text{\color{#801F1F} @crumbbii}$
                     <br>
                 </div>
                 <br>
@@ -42,10 +50,11 @@ $\text{\color{#FFDBE2} he}$ $\text{\color{#FFDBE2}⠀⠀𝄞。　 }$ $\text{\co
                     <tr>
                         <td>
                     
-<img src="https://i.postimg.cc/DZ5zx7Pz/Untitled1573-20261118210146.png" width=100>
+<img src="https://i.postimg.cc/RV5ZZzth/image-2026-11-19-033657071.png" width=100>
 </td>
 </tr>
 <details>
   <summary>AWARDS</summary><h5 align="center">
 
 </table>
+
